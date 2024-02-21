@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on projects on AI
 - 📫 Reach me through email:musyokajames987@gmail.com
 - 😄 Pronouns: HE/HIM
-- ⚡ Fun fact: 
+- ⚡ Fun fact: Jesus is Lord :)
 
 <!---
 musyokajames/musyokajames is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
